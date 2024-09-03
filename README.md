@@ -1,2 +1,2 @@
-# x
-X.com
+# X
+https://x.com/furiyaai
